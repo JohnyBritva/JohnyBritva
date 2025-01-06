@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on friend, mentor, teacher, employer, at least someone who would help me enter the IT field)
 - 📫 How to reach me Temich962@gmail.com или +7-914-971-38-08 telegram
 - 😄 Pronouns: He
-- ⚡ Fun fact: I live in Russia
+- ⚡ Fun fact: I live in Russia 
+I'm new and I don't understand much
 
 <!---
 JohnyBritva/JohnyBritva is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
